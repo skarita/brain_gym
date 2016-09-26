@@ -15,7 +15,7 @@ Tuesday, Thursday, Thank God Its Friday, The Sabbath.
 3. Take corn to other side. Row back alone and then take chicken to other side.
 
 ## Q5.
-More than 3000 figs if needed, provided the vessel has enough fuel and time to make the journey back and forth.
+667 Figs.
 
 ## Q6.
 An apple a day keeps the doctor away and Hal is a surgeon doctor.
